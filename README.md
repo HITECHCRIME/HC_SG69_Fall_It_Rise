@@ -21,6 +21,10 @@ fall it panic
 gonna fall it 
 rise
 
+gotta
+paint the picture now
+of disgust
+
 get it recognized
 get it quota recognized
 get them fucking cunts
