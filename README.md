@@ -29,6 +29,8 @@ get it recognized
 get it quota recognized
 get them fucking cunts
 
+x
+x
 fucking outraaaged
 
 gotta a way
