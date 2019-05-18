@@ -76,7 +76,7 @@ eyey
 
 got in on the rider's 
 fucking it turning
-good preaching allright 
+good preaching allright up
 
 got in on the rider's 
 fucking credible
@@ -86,7 +86,13 @@ got in on the rider's
 fucking incredible 
 hey ya
 
+got in on the rider's 
+fucking incredible 
+hey ya
+
 fucking credible rolln
+
+ey ya ey ya
 
 gotta erase an up and down ey
 gotta erase it off the curb
@@ -96,6 +102,8 @@ gotta erase it off the curb - wait
 like a got a rollie
 
 gotta erase ey
+gotta erase
+gotta erase 
 
 x
 x
