@@ -6,10 +6,27 @@ https://www.youtube.com/watch?v=BcQcsQaJMWI
 ## Lyrics
 
 ```
+
+ey
+
+ey ey ey ey ey
+
+silent
+
 x
 getting embalmed
 x
 x
+
+gotta get up 
+fall it panic
+gonna fall it 
+rise
+
+gotta get up 
+fall it panic
+gonna fall it 
+rise
 
 gotta get up 
 fall it panic
@@ -33,23 +50,27 @@ get it recognized
 get it quota recognized
 get them fucking cunts
 
+x
+x
+x
+
 ey ey ey ey
 
 eyey
 
 got in on the rider's 
 fucking it turning
+x
 
 got in on the rider's 
 fucking credible
+x
 
-
+got in on the rider's 
 fucking incredible 
 hey ya
 
 fucking credible rolln
-
-fucking incredible
 
 gotta erase an up and down ey
 gotta erase it off the curb
@@ -61,6 +82,8 @@ x
 x
 fucking outraaaged
 
+growl section
+
 gotta a way - homie
 gotta a way - hey up aye
 gotta a way - hey up
@@ -70,5 +93,7 @@ bunk ya help it now
 got it inside
 why don't you
 cut it out
+
+
 
 ```
