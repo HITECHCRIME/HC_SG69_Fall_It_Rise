@@ -32,7 +32,9 @@ got in on the rider's
 fucking it turning
 x
 
-gotta get up 
+build up growl or maybe very light
+
+gotta get up
 fall it panic
 gonna fall it 
 rise
@@ -108,8 +110,10 @@ gotta erase
 x
 x
 fucking outraaaged
+enraaaaaged
 
 waaait, hold it iiiiin
+
 
 growl section
 
