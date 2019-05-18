@@ -18,10 +18,19 @@ getting embalmed
 x
 x
 
-gotta get up 
-fall it panic
-gonna fall it 
-rise
+(growl intro...)
+
+got in on the rider's 
+fucking it turning
+x
+
+got in on the rider's 
+fucking it turning
+x
+
+got in on the rider's 
+fucking it turning
+x
 
 gotta get up 
 fall it panic
@@ -31,6 +40,11 @@ rise
 gotta get up 
 fall it panic
 gonna fall it 
+rise
+
+gotta get up 
+fall it panic
+gotta fall it 
 rise
 
 gotta get up 
@@ -42,12 +56,14 @@ gotta
 paint now 
 the picture now
 of disgust height now ou
+hate now
 
-gotta
+gotta wait
 what you a saint now
+flushed it away
 
 get it recognized
-get it quota recognized
+get it them quota
 get them fucking cunts
 
 x
@@ -60,7 +76,7 @@ eyey
 
 got in on the rider's 
 fucking it turning
-x
+good preaching allright 
 
 got in on the rider's 
 fucking credible
@@ -76,22 +92,27 @@ gotta erase an up and down ey
 gotta erase it off the curb
 like a got a rollie
 
+gotta erase it off the curb - wait
+like a got a rollie
+
 gotta erase ey
 
 x
 x
 fucking outraaaged
 
+waaait, hold it iiiiin
+
 growl section
 
-gotta a way - homie
+gotta a way - homie (get in the way)
 gotta a way - hey up aye
 gotta a way - hey up
 gotta a way - hey up
 get it now plunk it now 
 bunk ya help it now
 got it inside
-why don't you
+why'nt you
 cut it out
 
 
