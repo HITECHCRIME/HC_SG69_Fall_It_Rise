@@ -63,14 +63,13 @@ hate now
 gotta wait
 what you a saint now
 flushed it away
-
 get it recognized
 get it them quota
 get them fucking cunts
 
-x
-x
-x
+melody
+melody
+melody
 
 ey ey ey ey
 
@@ -97,6 +96,7 @@ fucking credible rolln
 ey ya ey ya
 
 gotta erase an up and down ey
+
 gotta erase it off the curb
 like a got a rollie
 
@@ -107,13 +107,16 @@ gotta erase ey
 gotta erase
 gotta erase 
 
-x
-x
+
+melody
+melody
+melody
 fucking outraaaged
 enraaaaaged
 
 waaait, hold it iiiiin
-
+can't believe
+comprehend
 
 growl section
 
